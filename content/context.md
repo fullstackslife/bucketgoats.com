@@ -1,0 +1,4 @@
+# BucketGoats.com
+
+## Domain Information
+
